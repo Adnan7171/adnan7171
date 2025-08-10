@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: Adnan Ismail
 💻 **Aspiring Quant | Data Enthusiast | Problem Solver**  <br>📍 Based in Pakistan | 🌍 Open to remote opportunities
 
 
